@@ -1,0 +1,2 @@
+- 👋 Hej Jestem Kuz0nik I Będe Zajmował Się Robieniem Texturepacks Do Minecraft.
+- 👀 Interesuję się grami i informatyką.
